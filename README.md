@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Jagadeshwaran-D
+- 👀 I’m interested in learning new technologies
+- 🌱 I’m currently learning python
+- 📫 How to reach me jagadeshdhanakotti@gmail.com
+- follow me at 
+ -Medium - https://jagadeshwaran-d.medium.com/
+ -Twitter -  https://twitter.com/Jagadeshwaran_D
+ -Linked in  - https://www.linkedin.com/in/jagadeshwaran-d-a7718115b/
+-Please support me
